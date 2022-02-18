@@ -1,4 +1,4 @@
-### Hi there :wave:
+### Hi there 👋
 
 <!--
 - 👀 I’m interested in ...
